@@ -1,3 +1,3 @@
 <p align="center">
-  hi
+  ☆ . . Refer to me as SONIC or CYBER !
 </p>
